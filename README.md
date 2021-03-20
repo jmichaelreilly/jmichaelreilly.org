@@ -4,6 +4,8 @@
 
 We are all still processing the news of J. Michael Reilly's death on March 13, 2021. A number of former students and colleagues are working on ideas to honor J. Michael Reilly's tremendous contribution to the community, including a memorial scholarship. There is also a [GoFundMe campaign](https://www.gofundme.com/f/honoring-jmr) for JMR's post-life expenses.
 
+[Coach Reilly's obituary is available at Legacy.com.](https://www.legacy.com/obituaries/ourmidland/obituary.aspx?n=j-michael-reilly&pid=198101946)
+
 This website is a placeholder for a future J. Michael Reilly Foundation website, which we'll build out in the coming weeks.
 
 Please consider subscribing to the website mailing list to stay up to date with our plans. (We promise we won't sell your email address or spam you!)
