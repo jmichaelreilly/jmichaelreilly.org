@@ -8,6 +8,10 @@ We are all still processing the news of J. Michael Reilly's death on March 13, 2
 
 This website is a placeholder for a future J. Michael Reilly Foundation website, which we'll build out in the coming weeks.
 
+## Updates
+
+**March 27, 2021:** Amy Bushey, Helen Garrett and Dana McKenna are leading an effort to have the Little Theater at H.H. Dow High School named after Coach. Awesome!
+
 Please consider subscribing to the website mailing list to stay up to date with our plans. (We promise we won't sell your email address or spam you!)
 
 <!-- Begin Mailchimp Signup Form -->
